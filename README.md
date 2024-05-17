@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 ania08333@gmail.com
 - 😄 ani
-- ⚡ Everything temporary 
+- ⚡ money can buy happiness 
 
